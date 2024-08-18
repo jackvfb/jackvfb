@@ -6,9 +6,9 @@ Formerly many things.
 - field tech
 - bioacoustician
 - this list goes on...
-  
-Now trying to make it as a data scientist.
+
+Simply interested in data.
 
 [LinkedIn](https://www.linkedin.com/in/jackson-vb-469b6824b/) | [Web portfolio](https://jackvfb.github.io)
 
-### Enjoy browsing! 😅
+### Enjoy browsing!
