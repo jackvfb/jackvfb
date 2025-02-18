@@ -9,6 +9,4 @@ Formerly many things.
 
 Simply interested in data.
 
-[LinkedIn](https://www.linkedin.com/in/jackson-vb-469b6824b/) | [Web portfolio](https://jackvfb.github.io)
-
 ### Enjoy browsing!
